@@ -1,2 +1,2 @@
-# developer-portfolio-by-Nafish-Nobel
+# developer-portfolio-by-nafish-nobel
 
